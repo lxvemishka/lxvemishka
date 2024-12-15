@@ -31,15 +31,14 @@
  - 𝐋𝐚𝐧𝐚 𝐃𝐞𝐥 𝐑𝐞𝐲
  - Adrianne Lenker
  - muse
- - 𝐆𝐰𝐞𝐧 𝐒𝐭𝐞𝐟𝐚𝐧𝐢
  - 𝐅𝐫𝐚𝐧𝐤 𝐎𝐜𝐞𝐚𝐧
  - 𝐌𝐢𝐭𝐬𝐤𝐢
  - 𝐆𝐫𝐢𝐦𝐞𝐬
-& way 𝐦𝐨𝐫𝐞!
+& a bunch more
 
 ꨄ 𝐟𝐚𝐯𝐬 
  . 𝐠𝐞𝐧𝐞𝐬𝐢𝐬 . Angel . The Summoning .
- 𝐍𝐨.𝟏 𝐏𝐚𝐫𝐭𝐲 𝐀𝐧𝐭𝐡𝐞𝐦 . Liquid smooth .
- 𝐇𝐨𝐰 𝐒𝐨𝐨𝐧 𝐈𝐬 𝐍𝐨𝐰? . Better in the dark
+all i need . love crime .
+tear you apart
 
-.. 𝐬𝐞𝐯𝐢𝐤𝐚 𝐢𝐬 𝐦𝐲 𝐰𝐢𝐟𝐞 𝐭𝐫𝐮𝐬𝐭 🙏
+.. hexstrap believer 𝐭𝐫𝐮𝐬𝐭 🙏
