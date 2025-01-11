@@ -1,4 +1,4 @@
-𝐫𝐞𝐧𝐭𝐫𝐲 𝐩age ➪ 
+𝐫𝐞𝐧𝐭𝐫𝐲 𝐩age ⇨
 https://rentry.co/lxvemishka 
-
-𝐨ther socials in 𝐩𝐫𝐨𝐠𝐫𝐞𝐬𝐬 !
+𝐜𝐚𝐫𝐫𝐝 ⇨
+https://carrd.co/build/519f300a3bab01f5
